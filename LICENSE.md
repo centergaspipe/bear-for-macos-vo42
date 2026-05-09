@@ -1,4 +1,4 @@
-
+new Bear for macOS Extension | reminders + real-time editing is the best Bear for macOS extension, featuring reminders and real-time editing. Safe, efficient, and optimized for
 
 
 
